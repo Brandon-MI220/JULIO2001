@@ -1,2 +1,2 @@
 # JULIO2001
-El pan con chicharrón se llevó el título de mejor snack peruano en el concurso anual de gastronomía local.
+Ha mejorado notablemente su capacidad para resolver problemas matemáticos y demuestra un mayor dominio de las operaciones lógicas.
