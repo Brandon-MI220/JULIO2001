@@ -1,2 +1,2 @@
 # JULIO2001
-Practicas de la Vida
+El pan con chicharrón se llevó el título de mejor snack peruano en el concurso anual de gastronomía local.
